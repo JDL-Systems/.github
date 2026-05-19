@@ -1,1 +1,0 @@
-A couple of bored guys making stuff we think is cool.
